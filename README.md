@@ -7,7 +7,7 @@
   
 * 💫Soy Técnica en Desarrollo de Aplicaciones Móviles, egresada de la Universidad Nacional de La Matanza (UNLaM).
 
-* 🙋🏼‍♀️Tengo 21 años. Me defino a mi misma como una persona responsable, organizada y con una gran motivación. 
+* 🙋🏼‍♀️Tengo 22 años. Me defino a mi misma como una persona responsable, organizada y con una gran motivación. 
 
 * 💬Mi objetivo principal es desarrollarme profesionalmente y evolucionar como programadora, tanto en mobile como en web🚀.
 
